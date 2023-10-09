@@ -1,4 +1,4 @@
-ini adalah implementasi kode untuk program layanan "*858#" telk*msel 
+ini adalah implementasi kode untuk program layanan "*858#" telk0msel 
 
 Kelompok RPL Terserah : 
 
